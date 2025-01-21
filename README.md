@@ -1,1 +1,1 @@
-I make dumb shit lol
+Member of Disruptory Games
